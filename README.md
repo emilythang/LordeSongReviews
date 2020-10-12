@@ -25,4 +25,6 @@ Recently popular among Gen Z teens, the song "Ribs" is the epitome of nostalgia,
 
 ![lorde](https://upload.wikimedia.org/wikipedia/commons/f/fe/Lorde_Pure_Heroine.png)
 
-If you are short on time and want to listen to Lorde's songs, click [here](https://youtu.be/gBJmt_C8Rv4) for a beautifully crafted megamix of all of Lorde's songs from her 2017 album "Melodrama." Thanks for reading!
+If you are short on time and want to listen to Lorde's songs, click [here](https://youtu.be/pvvHOeCUgpU) for a megamix of all of Lorde's songs from her 2013 album "Pure Heroine," or [here](https://youtu.be/gBJmt_C8Rv4) for a beautifully crafted megamix of all of Lorde's songs from her 2017 album "Melodrama." You can also click [here](https://youtu.be/hiSIG0h8sJU) for a mashup of ALL of Lorde's songs.
+
+Thanks for reading!
