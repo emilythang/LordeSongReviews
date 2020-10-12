@@ -23,4 +23,5 @@ Recently popular among Gen Z teens, the song "Ribs" is the epitome of nostalgia,
 "Hard Feelings/Loveless" is a two-in-one song that is the definition of "hauntingly beautiful." Featuring poetic verses and experimental beats followed by a mesmerizing incantation of post-breakup bitterness, this song literally sounds like a heart is being ripped up, tossed, thrown, and shattered into a million pieces. Lorde uses the metaphor of changing seasons throughout the song to juxtapose her feelings of warm bliss with cold sorrow, brilliantly narrating her heartache and numbness from falling out of love. If you ask me, this song is truly a work of art.
 
 ![lorde](https://upload.wikimedia.org/wikipedia/commons/f/fe/Lorde_Pure_Heroine.png)
-If you are short on time and want to listen to Lorde's songs, click [here](https://youtu.be/gBJmt_C8Rv4) for a beautifully crafted megamix of all of Lorde's songs from her 2017 album "Melodrama." 
+
+If you are short on time and want to listen to Lorde's songs, click [here](https://youtu.be/gBJmt_C8Rv4) for a beautifully crafted megamix of all of Lorde's songs from her 2017 album "Melodrama." Thanks for reading!
