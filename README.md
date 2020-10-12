@@ -1,5 +1,5 @@
 # Lorde Song Reviews
-
+[lorde](https://www.google.com/url?sa=i&url=https%3A%2F%2Fen.wikipedia.org%2Fwiki%2FMelodrama_(Lorde_album)&psig=AOvVaw0wQGngwki4hETZibUE8hgq&ust=1602562216355000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCOjg3M-XruwCFQAAAAAdAAAAABAD)
 Ella Yelich-O'Connor, better known as Lorde, is a New Zealand singer-songwriter whose iconic music defined the pop industry of the 2010s, allowing millions of people to express themselves through her electrifying music, whether it be dancing in one's bedroom, singing in the shower, or destressing after a long day of work. As an avid Lorde listener, I believe it's time I review some of her most well-known songs and personal favorites of mine (in no particular order)! 
 
 ## 1. Royals
