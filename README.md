@@ -1,5 +1,6 @@
 # Lorde Song Reviews
 ![lorde](https://i.insider.com/5943fe249a7af51b008b4c40?width=1100&format=jpeg&auto=webp)
+
 Ella Yelich-O'Connor, better known as Lorde, is a New Zealand singer-songwriter whose iconic music defined the pop industry of the 2010s, allowing millions of people to express themselves through her electrifying music, whether it be dancing in one's bedroom, singing in the shower, or destressing after a long day of work. As an avid Lorde listener, I believe it's time I review some of her most well-known songs and personal favorites of mine (in no particular order)! 
 
 ## 1. Royals
